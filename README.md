@@ -1,0 +1,1 @@
+Use Scaffolding technic here.......Breeze
